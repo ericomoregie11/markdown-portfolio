@@ -1,1 +1,1 @@
-[GitHub](http://github.com/ericomoregie11).
+[Eric Omoregie GitHub Profile](http://github.com/ericomoregie11).
